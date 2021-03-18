@@ -7,7 +7,7 @@
 
 # What I believe
 
-I believe that if we fall into the Bermuda Triangle we fall near the center of the world.
+    I believe that if we fall into the Bermuda Triangle we fall near the center of the world.
 
 # Note
 
