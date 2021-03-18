@@ -1,1 +1,1 @@
-# Lendas-do-Tri-ngulo-das-Bermudas
+# Legends-of-the-riangle-of-Bremudas
