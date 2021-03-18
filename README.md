@@ -1,4 +1,4 @@
-# Legends-of-the-riangle-of-Bremudas
+# Legends-of-the-Triangle-of-Bremudas
 
 # What some people think
 
